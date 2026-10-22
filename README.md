@@ -226,4 +226,4 @@ Recuva Portable is offered as a full free version with all features and updates 
 Take action now! Download Recuva Portable and safeguard your important files today!
 
 ---
-**Last updated:** 2026-10-22 13:34:16 UTC
+**Last updated:** 2026-10-22 18:22:48 UTC
